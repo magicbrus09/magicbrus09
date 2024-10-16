@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @magicbrus09
+- 👀 I’m interested in creating cool videogames
+- 🌱 I’m currently learning GML, Python
+- 📫 How to reach me: YT channel, reddit, twitch or by a msg on my web page; all in my profile
+- 😄 Pronouns: Him/His/Mah Bro
+- ⚡ Fun fact: I wanna be famous
